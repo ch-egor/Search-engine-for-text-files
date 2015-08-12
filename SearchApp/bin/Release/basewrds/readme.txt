@@ -1,0 +1,1 @@
+This list of lemmas was downloaded from http://www.victoria.ac.nz/lals/about/staff/paul-nation
